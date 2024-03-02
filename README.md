@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MaryNuzhdina
-- 👀 I’m interested in Lego, Gymnastics, Cooking, Eatenig berries
+- 👀 I’m interested in Lego, Gymnastics, Cooking, Eating berries
 - 🌱 I’m currently learning the world and web3
 - 💞️ I’m looking to collaborate on photograph
 - 📫 How to reach me: marynuzhdina@gmail.ru
