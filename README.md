@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning the world and web3, building lego cities
 - 💞️ I’m looking to collaborate on photography, video, food reveiws, fashion and make-up. Dancing.
 - 📫 How to reach me: marynuzhdina@gmail.ru
-- Favorite color - Purpule. Fond of Guardians of the galaxy
+- Favorite color - Purpule. Fond of Guardians of the Galaxy. Scooter rider, Doing gymnastics
